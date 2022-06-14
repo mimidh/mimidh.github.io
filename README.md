@@ -5,5 +5,5 @@
 唯一广告合作联系邮箱：yana.inzh5@gmail.com</br>
 收藏本站发布页，永不迷路。
 
-发布页入口：https://xn--y5qq4d96kgg087kdjb16oy5f.500bibi.com/</br>
+发布页入口：http://xn--y5qq4d96kgg087kdjb16oy5f.500bibi.com/</br>
 
